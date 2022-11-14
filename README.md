@@ -1,3 +1,3 @@
 Hi I'm Carbonated Milk
-I like doing random stuff on my computer.
+I enjoy coding and making games.
 I hope you like my stuff.
